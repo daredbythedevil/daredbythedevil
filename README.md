@@ -1,6 +1,5 @@
 <div align="center">
-  
-![d73a035659668703d853dacb92375459](https://github.com/user-attachments/assets/b11c3378-c3f7-46a5-acb1-d0ba8b7d2043)
+<img width="893" height="279" alt="9bfdbdc727cd3b5d38794003dc565c59-removebg-preview" src="https://github.com/user-attachments/assets/a0efe224-6cee-41c6-938b-4a33ee28356b" />
 
 <div align="center">
 vincent . 16 . he/they
