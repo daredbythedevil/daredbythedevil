@@ -14,7 +14,10 @@
 <div align="center">
   ⠀⠀⠀⠀⠀ 　　　　 ⠀
   
-[strawpage](https://daredbythedevil.straw.page)  ⌖   [atabook](https://daredbythedevil.atabook.org)     ⌖  [rentry]()
+
+[strawpage](https://daredbythedevil.straw.page)  ⌖   [atabook](https://daredbythedevil.atabook.org)     ⌖  [rentry](rentry.co/loveforvinnie)
+ 
+  
   ⠀⠀⠀⠀⠀ 　　　　 ⠀
   <div align="center">
 𝐈 𝐜𝐚𝐧 𝐭𝐞𝐥𝐥 𝐛𝐲 𝐭𝐡𝐞 𝐥𝐨𝐨𝐤 𝐨𝐧 𝐲𝐨𝐮𝐫 𝐟𝐚𝐜𝐞
