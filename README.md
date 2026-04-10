@@ -13,7 +13,7 @@
     
 <div align="center">
   ⠀⠀⠀⠀⠀ 　　　　 ⠀
-[strawpage]()  ⌖   [atabook](https://daredbythedevil.atabook.org)   ⌖  [rentry]()
+[strawpage]()  ⌖   [atabook](https://daredbythedevil.atabook.org)     ⌖  [rentry]()
   ⠀⠀⠀⠀⠀ 　　　　 ⠀
   <div align="center">
 𝐈 𝐜𝐚𝐧 𝐭𝐞𝐥𝐥 𝐛𝐲 𝐭𝐡𝐞 𝐥𝐨𝐨𝐤 𝐨𝐧 𝐲𝐨𝐮𝐫 𝐟𝐚𝐜𝐞
