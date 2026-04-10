@@ -12,7 +12,7 @@
 𝐃𝐚𝐦𝐧, 𝐰𝐡𝐚𝐭 𝐲𝐨𝐮 𝐰𝐚𝐧𝐭?
     
 <div align="center">
-  ⠀⠀⠀⠀⠀ 　　　　 
+
 [strawpage](https://daredbythedevil.straw.page)  ⌖   [atabook](https://daredbythedevil.atabook.org)     ⌖  [rentry](https://rentry.co/loveforvinnie)
  
 
