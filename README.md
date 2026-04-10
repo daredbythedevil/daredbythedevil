@@ -10,12 +10,13 @@
 𝐈𝐭 𝐰𝐚𝐬 𝐨𝐯𝐞𝐫𝐫𝐚𝐭𝐞𝐝
   <div align="center">
 𝐃𝐚𝐦𝐧, 𝐰𝐡𝐚𝐭 𝐲𝐨𝐮 𝐰𝐚𝐧𝐭?
+
     
 <div align="center">
 
 [strawpage](https://daredbythedevil.straw.page)  ⌖   [atabook](https://daredbythedevil.atabook.org)     ⌖  [rentry](https://rentry.co/loveforvinnie)
- 
 
+ 
   <div align="center">
 𝐈 𝐜𝐚𝐧 𝐭𝐞𝐥𝐥 𝐛𝐲 𝐭𝐡𝐞 𝐥𝐨𝐨𝐤 𝐨𝐧 𝐲𝐨𝐮𝐫 𝐟𝐚𝐜𝐞
     <div align="center">
