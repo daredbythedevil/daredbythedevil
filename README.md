@@ -15,7 +15,7 @@
   ⠀⠀⠀⠀⠀ 　　　　 ⠀
   
 
-[strawpage](https://daredbythedevil.straw.page)  ⌖   [atabook](https://daredbythedevil.atabook.org)     ⌖  [rentry](rentry.co/loveforvinnie)
+[strawpage](https://daredbythedevil.straw.page)  ⌖   [atabook](https://daredbythedevil.atabook.org)     ⌖  [rentry](https://rentry.co/loveforvinnie)
  
   
   ⠀⠀⠀⠀⠀ 　　　　 ⠀
